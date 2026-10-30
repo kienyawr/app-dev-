@@ -6,6 +6,7 @@ I need to highlight these ==In 1989, a misunderstood teenager has a high school 
 - Comedy
 - Romance
 - Horror
+  
 **Casts**
 1. Kathryn Newton as *"Lisa Swallows"*
 2. Cole Sprouse as *"The Creature"*
